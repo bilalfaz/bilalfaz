@@ -4,7 +4,7 @@
 - 💞️ I want to collaborate on Instagram, Facebook, LinkedIn, and Twitter.
 - 📫 How to reach me LinkedIn: https://www.linkedin.com/in/muhammad-bilal-fazal-2aba382a8/ .
 - 😄 Pronouns: Bali
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I love exploring how AI can mimic human creativity — sometimes I even challenge AI to help me brainstorm new project ideas, and the results can be surprisingly clever.
 
 <!---
 bilalfaz/bilalfaz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
